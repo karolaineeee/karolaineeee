@@ -2,4 +2,4 @@
 - 👀 sou estudante do terceiro colegial, e tenho varios planos para o futuro.
 - 📫 karolterceirao@gmail.com
 - 🌱 sou simpatica e bem organizada.
-- 💞️ namorandp
+- 💞️ namorando
